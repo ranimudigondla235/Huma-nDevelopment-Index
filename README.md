@@ -1,1 +1,0 @@
-# Huma-nDevelopment-Index
